@@ -7,7 +7,7 @@
 | Property | Value |
 |----------|-------|
 | **Original File** | `index-v1-a1.m3u8` |
-| **Size** | .02 MB |
+| **Size** | 0 MB |
 | **Status** | **Complete (100%)** |
 | **Password Protected** | **NO** |
 

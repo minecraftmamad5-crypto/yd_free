@@ -2,4 +2,5 @@
 
 ----
 
-- 1 - 🎦 [DARK-AURA-PLAYLIST-⧸-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-♠️](https://github.com/minecraftmamad5-crypto/yd_free/tree/main/videos/DARK-AURA-PLAYLIST-%E2%A7%B8-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-%E2%99%A0%EF%B8%8F)
+- 1 - ▶️ [DARK-AURA-PLAYLIST-⧸-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-♠️](https://github.com/minecraftmamad5-crypto/yd_free/tree/main/videos/DARK-AURA-PLAYLIST-%E2%A7%B8-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-%E2%99%A0%EF%B8%8F)
+- 2 - 🎦 [DARK-AURA-PLAYLIST-⧸-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-🎵](https://github.com/minecraftmamad5-crypto/yd_free/tree/main/videos/DARK-AURA-PLAYLIST-%E2%A7%B8-JUMPSTYLE-HARDSTYLE-PHONK-MIX-2025-%F0%9F%8E%B5)
